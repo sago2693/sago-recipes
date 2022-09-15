@@ -5,7 +5,7 @@ Serves: 2
 - 2 cups of water
 - 1 cup of milk
 - 1 pinch of salt
-- 1 cup of Haferflocken
+- 1 cup of Haferflocken (See [types of oats](https://chefjulierd.com/steel-cut-oats-vs-rolled-oats-vs-quick-oats-whats-the-difference/).)
 - (optional) 1 cinammon stick
 
 Instructions:
