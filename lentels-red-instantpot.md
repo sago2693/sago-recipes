@@ -13,7 +13,7 @@ Serves: 4
 
 Output:
 - ca. 600 gr -- 3:1 
-portion: 200 gr cooked = 3/4 cup maso
+portion: 200 gr cooked = 3/4 cup ca.
 
 water proportion was good
 

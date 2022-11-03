@@ -21,3 +21,4 @@ Source: https://dreamyhome.co.uk/how-to-cook-chicken-in-a-halogen-oven/
 Temperature and use of extension ring is ok. The outcome is rather dry and plain, I should try marinating beforehand.
 
 
+marinated chicken test: 200 g + halogen ring + 35 min. That was enough time

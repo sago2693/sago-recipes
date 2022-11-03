@@ -1,7 +1,7 @@
 ## Ingredients
 
 Serves: 400 gr: 2:1 proportion
-per serve: 100 gr
+per serve: 100 gr. ca.: 3/4 cup
 
 
 ## Method: instantpot
